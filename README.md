@@ -13,8 +13,8 @@ Al ser una institución que gestiona acceso a servicios especializados con enfoq
 
 ¿Qué implica esto?
 
-    Cualquier persona puede solicitar información sobre las gestiones y actividades de El Refugio de la Niñez que estén relacionadas con los fines de la ley. 
+Cualquier persona puede solicitar información sobre las gestiones y actividades de El Refugio de la Niñez que estén relacionadas con los fines de la ley. 
 
-    La información sobre la estructura, funcionamiento y presupuesto de la organización, si gestiona recursos públicos, debería estar disponible. 
+La información sobre la estructura, funcionamiento y presupuesto de la organización, si gestiona recursos públicos, debería estar disponible. 
 
-    La información que se solicite no requiere justificación y se debe acceder a través de los procedimientos establecidos en la ley. 
+La información que se solicite no requiere justificación y se debe acceder a través de los procedimientos establecidos en la ley. 
